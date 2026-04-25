@@ -7,6 +7,10 @@
 
 𝐠𝐞𝐧𝐝𝐞𝐫 𝐪𝐮𝐞𝐬𝐭𝐢𝐨𝐧𝐢𝐧𝐠 . 𝐚𝐥𝐥 𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬 . 𝐛𝐚𝐬𝐢𝐜 𝐝𝐧𝐢 . 𝐁𝐓𝐃 𝐇𝐀𝐑𝐃 𝐃𝐍𝐈!!!
 
+<img width="221" height="152" alt="ranfren-satoru" src="https://github.com/user-attachments/assets/cccdc46b-7fd9-416e-b3d2-c8c786fe96b9" />
+
+
+
 wip STILL UGHGUGHRGHKHGSOUHGUSHGHDFIOGHDLKGNDFKGNDJLGDNJG
 
  [BYI/BYF](https://rentry.co/kiitsunemist88) [STRAW](https://creepylittleteagoth.straw.page/) [ATA](https://ikeda-ren.atabook.org/)
