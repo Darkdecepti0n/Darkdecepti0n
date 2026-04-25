@@ -2,7 +2,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31gu43uexrwducposvp6davp2k4y&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=b14e4e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31gu43uexrwducposvp6davp2k4y&redirect=true)
 
-𝗥𝗮𝗻𝗱𝗮𝗹 𝗼𝗿 𝗝𝗶𝗷𝗶
+𝗥𝗮𝗻𝗱𝗮𝗹 (𝗜𝗙 𝗖𝗟𝗢𝗦𝗘) 𝗝𝗶𝗷𝗶 𝗼𝗿 𝗦𝗮𝘁𝗼𝗿𝘂
 
 𝟏𝟒, 𝐩𝐨𝐜 & 𝐝𝐢𝐬𝐚𝐛𝐥𝐞𝐝
 
