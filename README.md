@@ -11,9 +11,7 @@
 
 ​𝐃𝐍𝐈 𝐢𝐟 𝐲𝐨𝐮𝐫𝐞 𝐌𝐀𝐆𝐀, 𝐫𝐚𝐜𝐢𝐬𝐭, 𝐭𝐫𝐚𝐧𝐬𝐩𝐡𝐨𝐛𝐢𝐜, 𝐡𝐨𝐦𝐨𝐩𝐡𝐨𝐛𝐢𝐜, 𝐚𝐧𝐝 𝐢𝐟 𝐲𝐨𝐮𝐫 𝐩𝐚𝐫𝐞𝐧𝐭𝐬 𝐚𝐫𝐞 𝐭𝐡𝐞 𝐩𝐫𝐞𝐯𝐢𝐨𝐮𝐬𝐥𝐲 𝐬𝐭𝐚𝐭𝐞𝐝..
 
-<img width="221" height="152" alt="ranfren-satoru" src="https://github.com/user-attachments/assets/cccdc46b-7fd9-416e-b3d2-c8c786fe96b9" />
-
-<img src="https://media1.tenor.com/m/uJB1GKNF6ngAAAAd/phighting-subkit.gif" alt="a drawing of two cartoon characters hugging each other with horns"/><img width="498" height="498" alt="image" src="https://github.com/user-attachments/assets/bf3ee530-9bb5-41dd-8c14-9d7bd7893fad" />  
+<img src="https://media1.tenor.com/m/uJB1GKNF6ngAAAAd/phighting-subkit.gif" alt="a drawing of two cartoon characters hugging each other with horns"/>
 
 test
 
